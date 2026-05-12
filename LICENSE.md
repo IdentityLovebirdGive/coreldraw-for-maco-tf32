@@ -1,4 +1,4 @@
-# 
+# ultimate Brushes for CorelDRAW for macOS - grid systems and blend modes offers the most advanced CorelDRAW for macOS brush, with grid systems and blend modes. Ideal for
 
 
 
